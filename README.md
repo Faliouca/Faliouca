@@ -5,10 +5,10 @@
 Here are some ideas to get you started:-->
 
 <p>🔭 I’m currently working on my math skills
-<br>🌱 I’m currently learning skills for com'uter science
-<br>👯 I’m looking to collaborate on... nothing really
-<br>🤔 I’m looking for help with... nothing :)
-<br>💬 Ask me about art in general.
-<br>📫 How to reach me: Youtube or Tiktok, @faliouca
+<br>🌱 I’m currently learning misc things
+<br>👯 I’m looking to collaborate on nothing
+<br>🤔 I’m looking for help with nothing because I have teachers
+<br>💬 Ask me about nothing because I do not understand
+<br>📫 How to reach me: no
 <br>😄 Pronouns: She/They
-<br>⚡ Fun fact: I'm a minor thanks</p>
+<br>⚡ Fun fact: no</p>
