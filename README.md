@@ -5,4 +5,4 @@
 Here are some ideas to get you started:-->
 
 <p>Student with Genshin brainrot and avid fan of CRK
-<br>anywayyyyy cyno sucks pull for venti</p>
+<br>im literally an idiot now and rely on w3 schools to keep my enthusiasm going</p>
